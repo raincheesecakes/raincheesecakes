@@ -1,3 +1,5 @@
+>> offline alot to focus on school and personal stuff!! sorry
+
 </div>
 
 <div align="center">
