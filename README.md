@@ -16,4 +16,4 @@ ${{\color{#bfbfbf}{\textsf{ please dont drag me into drama bro i couldnt care le
 
 ${{\color{#bfbfbf}{\textsf{ idm people who talk to me btw i just mayyy be offtab. sorry }}}}$
 
-[${{\color{#bfbfbf}{\textsf{ my niche rentry }}}}$](https://rentry.co/beyondtheskybox)
+[ my niche rentry](https://rentry.co/beyondtheskybox)
