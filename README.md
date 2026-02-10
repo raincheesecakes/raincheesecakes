@@ -3,6 +3,6 @@
 
 <div align="center">
 
-[ my niche rentry](https://rentry.co/beyondtheskybox)
+dont even trip dawg
 
 everyone should invest in skyboxwhispers rn
