@@ -5,10 +5,7 @@
 
 [sign this now](https://stargazing.atabook.org)
 
-dont even trip dawg
-
 everyone should invest in skyboxwhispers rn
 
-[strawpage to bully me](https://raincakes.straw.page)
-
-recommend reading the strawpage so you can have a fun fact to steal 
+[strawpage to bully me](https://raincakes.straw.page) [people i dislike](https://rentry.co/chococoveredchurros)
+ 
