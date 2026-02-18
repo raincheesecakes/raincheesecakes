@@ -3,7 +3,7 @@
 
 <div align="center">
 
-![.](https://komarev.com/ghpvc/?username=raincheesecakes&base=1&label=my+baby+rainlings&color=BB1301&style=plastic)
+![.](https://komarev.com/ghpvc/?username=raincheesecakes&base=1&label=my+baby+rainlings&color=ff9ac0&style=plastic)
 
 [my atabook](https://stargazing.atabook.org)
 
