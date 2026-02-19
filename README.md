@@ -1,4 +1,6 @@
 
+>> by the way, dont annoy me over past feuds ive had (think with R and RL. using initals). I dont care about beef that much anymore and i truly dont really "hate" anyone who isnt openly problematic.
+
 </div>
 
 <div align="center">
