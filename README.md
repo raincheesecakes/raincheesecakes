@@ -7,6 +7,6 @@
 
 [my atabook](https://stargazing.atabook.org)
 
-
-[strawpage to bully me](https://raincakes.straw.page) and [people i dislike](https://rentry.co/chococoveredchurros)
+please read [this](https://rentry.co/e5gdyvms) if we have had a feud/i dislike you!!
+[strawpage to bully me](https://raincakes.straw.page)
  
