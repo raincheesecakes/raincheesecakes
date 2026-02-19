@@ -1,12 +1,12 @@
 
+
+>> please read [this](https://rentry.co/e5gdyvms) if we have had beef
+
 </div>
 
 <div align="center">
 
-![.](https://komarev.com/ghpvc/?username=raincheesecakes&base=1&label=my+baby+rainlings&color=ff9ac0&style=plastic)
+![.](https://komarev.com/ghpvc/?username=raincheesecakes&base=1&label=my+baby+rainlings&color=187FB6&style=plastic)
 
-[my atabook](https://stargazing.atabook.org)
-
-please read [this](https://rentry.co/e5gdyvms) if we have had a feud/i dislike you!!
-[strawpage to bully me](https://raincakes.straw.page)
+[strawpage](https://raincakes.straw.page)[atabook](https://stargazing.atabook.org)[rentry](https://rentry.co/beyondtheskybox)
  
