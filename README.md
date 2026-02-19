@@ -1,7 +1,4 @@
 
-
->> please read [this](https://rentry.co/e5gdyvms) if we have had beef
-
 </div>
 
 <div align="center">
